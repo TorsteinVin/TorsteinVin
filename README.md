@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @TorsteinVin
-- I'm new to macOS and iOS-development, web-technology, information security, coffee and matters of privacy :)
+- I'm interested in macOS and iOS-development, web-technology, information security, coffee and matters of privacy :)
 - Please use Duckduckgo.com for searches, Signal for messaging, Firefox on any OS or Safari on Mac, stay away from Google and Facebook, and ALWAYS freshly grind whole coffee beans :) 
 - 📫 How to reach me https://www.reddit.com/user/torsteinvin
 
